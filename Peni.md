@@ -3,7 +3,7 @@ Julianti
 
 JuliantiJuli
 
-![Galaksi Bima Sakti](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.lazada.co.id%2Fproducts%2Fposter-anime-spy-x-family-1-anya-forger-merchandise-i6473108330.html&psig=AOvVaw3SnQP79GWr5Kcinkfson98&ust=1683789150615000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCLDFtsqZ6v4CFQAAAAAdAAAAABAE)
+![Galaksi Bima Sakti](https://www.google.com/search?q=anya+forger&sxsrf=APwXEddklgvbBiJf2rQWjewhYGEOk0mJNg:1683702748306&source=lnms&tbm=isch&sa=X&ved=2ahUKEwikhuHBmer-AhWL7jgGHfRpAPMQ_AUoAXoECAEQAw&biw=1536&bih=746&dpr=1.25#imgrc=xeIVNYtCZOM-dM)
 
 | Planet | Diameter | Jumlah Satelit |
 | ------- | -------- | -------------- |
